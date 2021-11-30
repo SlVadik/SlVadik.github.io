@@ -1,1 +1,0 @@
-# SlVadik.github.io
